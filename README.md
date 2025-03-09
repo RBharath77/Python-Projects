@@ -1,3 +1,3 @@
 📝 About
   * Hi There 👋🏻
-  * I Am **BHARATH** I Upload** PYTHON Programs**✅ 
+  * I Am **BHARATH** I Upload **PYTHON Programs** 
